@@ -5,4 +5,3 @@ Here is my research poster:
 
 ![Mass Personalization Poster- Saran Duncan](https://github.com/user-attachments/assets/c1bb0548-801a-46df-9652-4208d78d991f)
 
-[Mass Personalization Research Poster- Saran Duncan.pdf](https://github.com/user-attachments/files/20614425/Mass.Personalization.Research.Poster-.Saran.Duncan.pdf)
